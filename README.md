@@ -2,8 +2,8 @@
 
 ### 🔭 Outside of software development, my interests include: 
 - Historical architecture, home design, and home renovation projects
+- Traveling!
 - Learning new skills - currently enrolled in woodworking classes 🪵
-- Reading
 - Listening to some of my favorite podcasts - Radiolab, Science VS, Milk Street, and Heavyweight
 
 
